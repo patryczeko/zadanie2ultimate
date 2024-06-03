@@ -22,6 +22,9 @@ po czym wybrać jeden z plików
 
 ![image](https://github.com/patryczeko/zadanie2ultimate/assets/106553021/4e9676d8-c6eb-4043-a93c-dd7b6129c410)
 
+![image](https://github.com/patryczeko/zadanie2ultimate/assets/106553021/b2d6fcb4-31a8-4dc6-84b6-24fa871fc2ef)
+
+
 
 
 
