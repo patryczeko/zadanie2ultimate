@@ -20,6 +20,11 @@ po czym wybrać jeden z plików
 
 ![image](https://github.com/patryczeko/zadanie2final/assets/106553021/ffb8b5f9-c5e6-4c35-b0fb-3bbeb6afc87f)
 
+![image](https://github.com/patryczeko/zadanie2ultimate/assets/106553021/4e9676d8-c6eb-4043-a93c-dd7b6129c410)
+
+
+
+
 
 
 
